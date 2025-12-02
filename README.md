@@ -1,16 +1,25 @@
-## Hi there 👋
+  ݁    ‘𝓐𝓫𝓸𝓾𝓽 𝓶𝓮 ’  . . ⸝⸝ .ᐟ .
 
-<!--
-**smilemydea4/Smilemydea4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+  ⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
+      𝓒𝓪𝓵𝓵 𝓶𝓮 ‘𝓛𝓾’
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+~  𝗜'𝗺 𝗺𝗼𝘀𝘁𝗹𝘆 𝗮𝗳𝗸 𝘀𝗼 𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰+𝗵 𝗮𝗻𝘆𝘁𝗶𝗺𝗲! 
+            𝗔𝗻 𝗮𝗱𝘂𝗹𝘁 ( ‘17/18’ ) ` ~
+
+
+◠ཌ  𝕾𝖙𝖆𝖙𝖚𝖘 / 𝕮𝖎𝖘𝖎𝖇𝖎𝖑𝖎𝖙𝖞  ད◡
+    𝕻𝖔𝖔𝖗𝖑𝖞 𝖇𝖆𝖉 𝖆𝖙 𝖗𝖊𝖑𝖆𝖙𝖎𝖔𝖓𝖘𝖍𝖎𝖕𝖘   ‘ 𝖘𝖎𝖓𝖌𝖑𝖊 ’
+                👑 𝕬𝖗𝖔𝖆𝖈𝖊 & 𝕭𝖎 🎶
+         ..... 𝑉𝑖𝑠𝑖𝑏𝑙𝑒 𝑡𝑜 𝑏𝑒 𝓯𝓻𝓲𝓮𝓷𝓭𝓼  𝑎𝑛𝑑 𝓶𝓾𝓽𝓾𝓪𝓵...... 
+
+
+smilemydea4.atabook.org
+            🪉.. ──── ✧✦────.. 👑
+            ʏᴏᴜ ᴍᴀʏ ᴄᴀʟʟ ᴍᴇ... 
+     ᒪᑌ / ᒍᑌᒪᒪO .. ᕼᗴ / ᕼIᗰ ‘ 𝑨𝒏𝒚𝒕𝒉𝒊𝒏𝒈 𝒚𝒐𝒖 𝒑𝒓𝒆𝒇𝒆𝒓 ’
+                   `~    𝓐𝓕𝓚 𝓶𝓸𝓼𝓽 𝓸𝓯 𝓽𝓲𝓶𝓮. 
+              `~     𝓐𝓻𝓽𝓲𝓼𝓽, 𝓭𝓻𝓪𝔀𝓼 𝓪𝓷𝔂𝓽𝓱𝓲𝓷𝓰, 𝓮𝔁𝓬𝓮𝓹𝓽 𝓝𝓢𝓕𝓦🚫
+         `~     𝓑𝓮𝓽𝓽𝓮𝓻 𝓲𝓯 𝓶𝓲𝓷𝓸𝓻𝓼 𝓓𝓝𝓙... 🎶
